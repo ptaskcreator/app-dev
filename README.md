@@ -16,5 +16,4 @@
 ## Why I Love It
 I adore "Stranger Things" for its perfect blend of mystery, suspense, and 80s nostalgia. The character development, unexpected twists, and superb acting keep me eagerly anticipating each new season.
 
-[Official Website](https://www.strangerthings.tv/)
 
